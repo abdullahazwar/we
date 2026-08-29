@@ -1,0 +1,2 @@
+# we
+punya berdua
